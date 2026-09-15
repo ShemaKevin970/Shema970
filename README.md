@@ -1,2 +1,2 @@
 # Shema970
-# My Identity - **Full Name:** John Mwangi - **Admission Number:** COM/001/2024 - **Classroom Email:** john.mwangi@student.school.ac.ke - **GitHub Username:** john-mwangi-ke - **Season:** Sept-Dec 2026
+# My Identity - **Full Name:** Kevin Shema - **Admission Number:** 1004 - **Classroom Email:** kevinshema970@gmail.com **GitHub Username:** Shema970 **Season:** Sept-Dec 2026
